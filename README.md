@@ -15,6 +15,6 @@ Langkah berpartisipasi
 
 Launchpool akan berakhir di tanggal 14 November pukul 17:00 WIB!
 
-Yuk, daftar dan ikutan sekarang. Klik [di sini] (https://www.bitget.site/id/events/launchpool/1237614089837367296?clacCode=GJ5KA516)
+Yuk, daftar dan ikutan sekarang. Klik [di sini](https://www.bitget.site/id/events/launchpool/1237614089837367296?clacCode=GJ5KA516)
 
-Belum punya akun Bitget? Daftar sekarang dan klik [di sini] (https://partner.bitget.site/bg/Z7W768)
+Belum punya akun Bitget? Daftar sekarang dan klik [di sini](https://partner.bitget.site/bg/Z7W768)
